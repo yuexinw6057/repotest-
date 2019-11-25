@@ -1,0 +1,1 @@
+so first of, i went into my github-learning directory and from there i start my journey. 
